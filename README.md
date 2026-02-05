@@ -1,1 +1,2 @@
 # favorite-animal
+bears are really awesome. they are related to my other favorite animal, pigs. they're intelligent, independent and love honey which is relatable because i love honey too. they care a lot about each other and their young, hence the "mama bear" phrase. they're also very cute but can literally rip you to shreds which is awesome because you shouldn't mess with a bear.
